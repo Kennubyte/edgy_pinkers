@@ -1,1 +1,1 @@
-my eyes hurt, for kaj
+my eyes hurt, meant for kaj
